@@ -1,1 +1,1 @@
-instiut supéieur
+instiut supéieur d'informatique
